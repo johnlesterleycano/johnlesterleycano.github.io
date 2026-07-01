@@ -1,1 +1,0 @@
-# johnlesterleycano.github.io
